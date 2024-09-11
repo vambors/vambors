@@ -13,4 +13,4 @@ https://scratch.mit.edu/projects/1005925618/
 
 @Phonk
 
-![](https://tenor.com/bLNpq.gif)
+![](https://tenor.com/pt-BR/view/troll-troll-face-ragememe-rageface-trolling-gif-7857576152495722734)
