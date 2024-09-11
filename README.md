@@ -1,14 +1,14 @@
 ### Hi there 👋
 
 **Boas vindas ao meu perfil**
+
 *estou estudando na alura*
+
 *estou fazendo projetos*
 
  Voce pode entrar em comtatato comigo:
  gabrielandrade6090@gmail.com
 
- 
-https://scratch.mit.edu/projects/1005925618/
 https://scratch.mit.edu/projects/1005925618/
 
 ![](https://tenor.com/pt-BR/view/trollface-gif-23745334)
