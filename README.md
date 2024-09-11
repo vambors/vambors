@@ -14,5 +14,4 @@ https://scratch.mit.edu/projects/1005925618/
 @Phonk
 
 ![](https://media1.tenor.com/m/8BHp2wp2nA8AAAAC/meliodas.gif)
-
-![](https://media1.tenor.com/m/naa_U8qjyAYAAAAd/sonic-colors-no-copyright-law-in-the-universe.gif)
+![](https://media1.tenor.com/m/-60E00n5A9oAAAAC/mati-bodoh.gif)
